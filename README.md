@@ -1,7 +1,9 @@
 Olaa!!! 🤙
 
 Meu nome é Alex 
+
  📚 Atualmente Estudante do Alura e Cursando o Ensino medio
+ 
  🏳️‍🌈 Nao-binario
  
   #### Você podera me contatar aqui📬
