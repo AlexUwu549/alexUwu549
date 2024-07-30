@@ -1,10 +1,11 @@
 Olaa!!! 🤙
 
 Meu nome é Alex 
- 📚 Atualmente Estudante e cursando Ensino medio 
+ 📚 Atualmente Estudante do Alura e Cursando o Ensino medio
  🏳️‍🌈 Nao-binario
  
-  #### Voçe podera me contatar aqui📬
+  #### Você podera me contatar aqui📬
 
 ericksampaio12x@email.com 
-![]https://tenor.com/pt-BR/view/protogen-moose-furry-furries-oc-gif-19307396
+![](link)
+https://tenor.com/pt-BR/view/protogen-moose-furry-furries-oc-gif-19307396
