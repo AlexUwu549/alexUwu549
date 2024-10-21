@@ -1,6 +1,6 @@
 Olaa!!! 🤙
 
-Meu nome é Alex 
+Meu nome é Erick
 
  📚 Atualmente Estudante do Alura e Cursando o Ensino medio
  
